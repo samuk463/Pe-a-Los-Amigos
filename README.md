@@ -1,1 +1,1 @@
-# Pe-a-Los-Amigos
+# Peña-Los-Amigos
